@@ -1,0 +1,1 @@
+# www.jobs.wiki.hackerspace-krk.pl
